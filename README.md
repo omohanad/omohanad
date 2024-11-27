@@ -1,11 +1,6 @@
 #Welcome
 Hello This part of my world
-# I'm gonna tell you about my clearest memory while growing up 
-It was the first time i understand the algorism of words and letters 
-the first time all these nonsense hard digitals starts to be alife 
-i couldn't resist my self reading every word in the class 
-and the first thing to remeber after, telling my mom i could read,
-she respond"darlying you have been reading long while ago!!"
+One of my clearest childhood memories is the moment I first understood the algorithm of words and letters—the way they fit together to create meaning. It was the first time all those seemingly nonsensical symbols came alive. I couldn’t help myself; I read every word I saw on the way home
 
 #please share me yours!!
 
